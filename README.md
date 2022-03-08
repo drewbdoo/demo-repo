@@ -1,3 +1,12 @@
 # demo-repo
 
-gsdfgfds
+### Meme Repository  
+![CHAOS!](https://ih1.redbubble.net/image.627311710.6386/raf,750x1000,075,t,101010:01c5ca27c6.u2.jpg)
+
+## AITA 
+
+Here we go...I've been playing the guitar for 22 years.  
+I know guitar values and whatnot very well. I'm very into the guitar market. At my wife's old company she was hanging out with co-workers one day after work and she mentioned that I play guitar. A co-worker who I guess is very popular at work said that his dad passed away and he was selling his dads things. His dad had a guitar and asked my wife if I'd be interested in it. My wife texted me and I said to have him send me the info on the guitar and the price. The next day he texted me the pics and price. It was a 1952 Telecaster in mint condition. He had the original receipts which was crazy! (_That's how I knew the date_). I asked what he wanted for it and he said he "looked up Telecasters online and he thinks $4,000 is fair". I texted back, "I'll take it for $4,000" and went to pick it up. The guitar had no sentimental value to him at all.
+
+#### Here's the issue at hand. 
+ The guitar was/is worth approximately $50,000 depending on the buyer and I knew it. When I got the guitar I told my wife the price and what it was worth. She was floored. Fast forward two weeks her co-worker tells my wife he just found out what the guitar was actually worth from a family friend and wanted it back. She said, "well he really likes the guitar and he knew it was worth $50,000 which is why he was floored you offered it to him for $4,000. He really likes it and I doubt he will sell it back, but you can ask." (Probably not the smartest thing for her to say, but she was caught off guard and it's not her fault or problem). He contacted me and asked to buy it back. I said that it's not for sale. He then said I scammed him and he was going to "sue me and take my wife to HR for being a part of the scam." Which was nuts, but he actually did contact HR. They were cool about it and said it's not their problem. It's between him and me. Over the next few months he made things very uncomfortable for my wife at work. He would bug her constantly about it. She eventually had to go to HR for harassment and they actually let him go (She complained twice and he was warned and didn't stop). He's contacted me several times about it so I got a restraining order for harassment too. I blocked him too. I haven't heard from him in about a year.
